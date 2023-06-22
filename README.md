@@ -1,1 +1,22 @@
-# newsletter
+The Letter Before the Letter
+
+What is a newsletter if it doesn't contain news and if it isn't a letter and God forbid, it isn't written [by hand]?
+
+Anyways -- we can call this maybe the Letter Before the Letter because it is a Preamble of sorts. We need to define intent and figure out who the audience is and what all makes this letter different from other letters...
+
+I like to fancy myself as a sort of hybrid-skilled individual -- able to traverse different landscapes, get in with different crowds, and able to cross pollinate (shout out to Charlie Munger) different information and toolkits to solve problems more expediently and/or come across fruits that might not be gained otherwise. We might call it INTERSECTING PHENOMENA -- and maybe we can say this represents God is multidimensional -- high and wide and far and deep... or maybe it's all foolishness.. but is it foolishness that confounds wise or is it foolishness that was predictable and isn't new under the sun?
+
+And in all of these cases -- I can merely say I am a vessel of sorts. I carry information in the storehouse or hard drive of my heart and I disseminate it based on certain promptings. I believe God uses even the flaws of our vessels to push out the substance of His Truth and His Truth being living and active, we can expect it will not return void -- which means anything it is applied to will either agree or be subdued, but it will not remain the same. If we've ever prayed the "search my heart" prayer we can understand that we can be shown substance in our heart having a reaction to the insertion of God's Light Be, and the darkness in our heart is brought to the witness seat for questioning, cross examination, and we maybe having thought our ways were right from the beginning, may begin to see that we indeed must repent -- we can't deny anymore that our witness is found to be faulty when compared to God's holiness -- and His substance has done a sort of chemistry on us, His holiness combined with our darkness in a beaker is volatile indeed, and it needs to be resolved -- perhaps through repentance and forgiveness, and then being made into alignment with the Blood of Jesus, or maybe it is poured into another repository -- the hardened heart of forgetting -- assuming there is such a thing.
+
+And maybe that's what we can say the newsletter is meant to be. If nothing else, if the words are ineloquent, maybe they caan be containers (vessels) of God's Light Substance, and upon being subjected to words (doors, roads, keys, truth, light), one can be brought into cross-examination to see that there is a distinction between true and false, and to see that maybe one is not so stagnant as the accuser would make it seem. In fact the Law made it clear that one could not be judged by only one witness, but the truth must be established by multiple witnesses. One witness alone by default appears to be correct but cross examination creates opportunity for repentance, and one might come to understand the heart of man -- that it is like water in the hand of the Lord.
+
+The Gospel by default is Good News -- meaning news that carries Light which is Truth, and good news, then, will always enable forward movement, if not transformation direction. So a letter (a word, of sorts) if abiding in Christ is His Word, and if nothing else, it is a channel.. an opportuinty to align with the stream of God's Truth, to drink from the One Cistern in which never will we thirst.
+
+May it be that the Words of these letters and the Truth from this pen coincide with a willing and discerning heart in the reader. May it be that God's Holy Substance is imparted through these aforementioned mechanisms in time and season but be also timeless. May the reader judge the words well and take personal responsibility to seek it out with the Lord and hold fast to any good and discard anything that is not appropriate for them or their household. May the Pen of the Ready Writer be imparted to those who might yield themselves to the duty of disseminating the Gospel of Jesus Christ. May the Gospel of Jesus Christ reconcile east and west -- that nothing high or wide or far or deep would be prevented from meeting their appropriate mark in their due season.
+
+May the Lord Jesus Christ, Holy and Deep, Justice and Living Expression, be praised always and forever, and may those who believe in Him share in His inheritance in this eternity unto the next eternal  glory.
+
+Amen.
+
+
+Ryan
