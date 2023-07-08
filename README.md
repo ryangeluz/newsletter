@@ -1,6 +1,6 @@
 updated July 8, 2023
 
-TLDR: Click VIEW CODE
+TLDR: Smartphone users, click VIEW CODE ^Up there^
 
 What's up dudes. 
 
